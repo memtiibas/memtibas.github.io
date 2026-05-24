@@ -1,1 +1,0 @@
-# memtibas.github.io
